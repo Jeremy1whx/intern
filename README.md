@@ -1,1 +1,1 @@
-# prepare for internship and job hunting
+# I need to prepare for internship and job hunting
